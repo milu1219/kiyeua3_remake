@@ -1,5 +1,3 @@
-
-
 Readme · MD
 # 📸 Kỷ Yếu A3 — Phiên Bản Làm Lại
  
